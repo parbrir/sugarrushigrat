@@ -6,16 +6,16 @@
 
 
 
-[![](https://i.ibb.co/VcrZHLtM/image.jpg)](https://clck.ru/3Hr27o)
+[![](https://i.ibb.co/VcrZHLtM/image.jpg)](https://clck.ru/3Mmm7v)
 
 Лучшие онлайн-казино:
 
-1. **[ARKADA CASINO](https://clck.ru/3Hr27o "ARKADA CASINO")** (🎁 Бонус 150% + 2000FS)
-2. **[R7 CASINO](https://clck.ru/3HsT58 "R7 CASINO")** (🎁 Бонус 50% + 50FS)
-3. **[KENT CASINO](https://clck.ru/3MmjWQ "KENT CASINO")** (🎁 Бонус 125% + 100FS)
-4. **[KOMETA CASINO](https://clck.ru/3JHf2X "KOMETA CASINO")** (🎁 Бонус 255% + 500FS)
-5. **[CAT CASINO](https://clck.ru/3HsTGi "CAT CASINO")** (🎁 Бонус 75% + 50FS)
-6. **[DADDY CASINO](https://clck.ru/3HsTSj "DADDY CASINO")** (🎁 Бонус 100% + 100FS)
+1. **[ARKADA CASINO](https://clck.ru/3Mmm7v "ARKADA CASINO")** (🎁 Бонус 150% + 2000FS)
+2. **[R7 CASINO](https://clck.ru/3Mmm8s "R7 CASINO")** (🎁 Бонус 50% + 50FS)
+3. **[KENT CASINO](https://clck.ru/3Mmm9w "KENT CASINO")** (🎁 Бонус 125% + 100FS)
+4. **[KOMETA CASINO](https://clck.ru/3MmmAP "KOMETA CASINO")** (🎁 Бонус 255% + 500FS)
+5. **[CAT CASINO](https://clck.ru/3MmmAn "CAT CASINO")** (🎁 Бонус 75% + 50FS)
+6. **[DADDY CASINO](https://clck.ru/3MmmBB "DADDY CASINO")** (🎁 Бонус 100% + 100FS)
 
 💡 Для получения бонуса необходимо в выбранном казино ввести промокод «1BONUSUP» при регистрации.
 
@@ -60,11 +60,12 @@ Sugar rush играть онлайн можно как на ПК, так и на
 
 | 🎰 **Казино**          | 🎁 **Бонусы**                    |  
 |-----------------------|---------------------------------|  
-| **[ARKADA CASINO](https://clck.ru/3Hr27o)** | 150% + 2000FS                  |  
-| **[R7 CASINO](https://clck.ru/3HsT58)**     | 50% + 50FS                     |  
-| **[KOMETA CASINO](https://clck.ru/3JHf2X)** | 255% + 500FS                   |  
-| **[CAT CASINO](https://clck.ru/3HsTGi)**    | 75% + 50FS                     |  
-| **[DADDY CASINO](https://clck.ru/3HsTSj)**  | 100% + 100FS                   |  
+| **[ARKADA CASINO](https://clck.ru/3Mmm7v)** | 150% + 2000FS                  |  
+| **[R7 CASINO](https://clck.ru/3Mmm8s)**     | 50% + 50FS                     |  
+| **[KENT CASINO](https://clck.ru/3Mmm9w)**   | 125% + 100FS                   | 
+| **[KOMETA CASINO](https://clck.ru/3MmmAP)** | 255% + 500FS                   |  
+| **[CAT CASINO](https://clck.ru/3MmmAn)**    | 75% + 50FS                     |  
+| **[DADDY CASINO](https://clck.ru/3MmmBB)**  | 100% + 100FS                   |  
 
 Эти площадки предлагают не только в sugar rush играть онлайн, но и щедрые бонусы: фриспины за депозит, кешбэк за проигрыши и эксклюзивные турниры. Регистрация занимает 2 минуты ⏳, а верификация аккаунта открывает доступ к быстрым выплатам.  
 
